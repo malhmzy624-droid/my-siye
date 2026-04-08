@@ -1,2 +1,0 @@
-# my-siye
-pa82cdfe2aa98e34f1aa927d1e9af9b820fe423ec
